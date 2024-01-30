@@ -19,4 +19,5 @@ you are present enough. if you feel generous, do a little performance on stage o
 **vibe check**<br />
 mindful, sober, vegan, vegetarian, creative, calm, love
 
-see ya! meinharrrrd. (:
+**see ya**<br />
+meinharrrrd
