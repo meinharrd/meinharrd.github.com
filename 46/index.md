@@ -13,10 +13,10 @@ mimpi house, penestanan, ubud ([google maps](https://maps.app.goo.gl/J1L32fFBJU4
 **what to bring**<br />
 you are present enough. if you feel generous, do a little performance on stage or bring a small plant for my new garden.
 
-**program**</br>
+**program**<br />
 3pm welcome, 5pm food, 6pm concert, 8pm kthxbye
 
-**vibe check**</br>
+**vibe check**<br />
 mindful, sober, vegan, vegetarian, creative, calm, love
 
 see ya! meinharrrrd. (:
