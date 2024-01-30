@@ -1,5 +1,5 @@
 ---
-title: meinhardd.github.com
+title: meinharrd.github.com
 ---
 
 # 31 January 2024
