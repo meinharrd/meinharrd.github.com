@@ -2,11 +2,10 @@
 title: meinharrd.github.com
 ---
 
-# 46
+<img src="meinhard46.jpg" width="300" />
 
-## Location
-Mimpi House, Penestanan, Ubud ([Google Maps](https://maps.app.goo.gl/J1L32fFBJU4RyNn5A))
+**location**: mimpi house, penestanan, ubud ([google maps](https://maps.app.goo.gl/J1L32fFBJU4RyNn5A))
 
-* Theme
-* Parking
-* Directions
+**parking**: 15 motorbike parking spots in front of the house, otherwise rice fields all around. be creative!
+
+**what to bring**: you are present enough. if you feel generous, do a little performance or bring a small plant for my new garden.
